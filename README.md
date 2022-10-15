@@ -24,13 +24,13 @@ Anymore than that will get you banned over the course of 2 hours.
 
 Swearing is allowed. but please do not use racial or offensive slurs, YELLING IS ALSO A OFFENSE THAT WILL GET 1 WARNING OR 2 MINS BAN
 
-**3.Listen to everyone **
+**3.Listen to everyone.**
 
 The Entire point of cambridge is to listen to all prespectives.
 
 We respect it. You shall too.
 
-**4. No bullying **
+**4. No bullying.**
 No bullying and/or violence directed to a protected group or individual.
 
 Sure, we let you air out your feelings on the group, but don't abuse
