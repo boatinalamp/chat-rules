@@ -31,6 +31,7 @@ The Entire point of cambridge is to listen to all prespectives.
 We respect it. You shall too.
 
 **4. No bullying.**
+
 No bullying and/or violence directed to a protected group or individual.
 
 Sure, we let you air out your feelings on the group, but don't abuse
