@@ -1,6 +1,6 @@
 # **Charter of rules**
 
-***********************************************
+_____________________________________________
 
 **1.  No spamming.**
 
@@ -19,16 +19,19 @@ Spam of 10-20 messages will result in a ban of 2 minutes
 20-50 messages will get you banned for 10 minutes
 
 Anymore than that will get you banned over the course of 2 hours.
+_____________________________________________
 
 **2. Swearing.**
 
-Swearing is allowed. but please do not use racial or offensive slurs, YELLING IS ALSO A OFFENSE THAT WILL GET 1 WARNING OR 2 MINS BAN
+Swearing is allowed. but please delete after the end user has read it, YELLING IS ALSO A OFFENSE THAT WILL GET 1 WARNING OR 2 MINS BAN
+_____________________________________________
 
 **3.Listen to everyone.**
 
 The Entire point of cambridge is to listen to all prespectives.
 
 We respect it. You shall too.
+_____________________________________________
 
 **4. No bullying.**
 
@@ -38,6 +41,7 @@ Sure, we let you air out your feelings on the group, but don't abuse
 
 that. Be kind to others and don't be mean.
 
+_____________________________________________
 **That's it!**
 
 Thanks for reading this set of rules, it really shows you care.
