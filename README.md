@@ -1,4 +1,4 @@
-(# **Charter of rules**
+# **Charter of rules**
 
 _____________________________________________
 
@@ -48,7 +48,7 @@ Admin abuse gets you kicked from the chat for a day.
 
 This includes:
 
-meeting for no reason, dismissing as admin for no reason etc...
+muting for no reason, dismissing as admin for no reason etc...
 _____________________________________________
 **That's it!**
 
