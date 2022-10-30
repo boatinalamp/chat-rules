@@ -40,7 +40,12 @@ No bullying and/or violence directed to a protected group or individual.
 Sure, we let you air out your feelings on the group, but don't abuse
 
 that. Be kind to others and don't be mean.
+_____________________________________________
 
+**5. No admin abuse**
+Admin abuse gets you kicked from the chat for a day.
+This includes:
+meeting for no reason, dismissing as admin for no reason etc...
 _____________________________________________
 **That's it!**
 
