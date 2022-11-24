@@ -59,4 +59,9 @@ We're sure you'll fit right in.
 Well, what are you waiting for? Get in there and get chatty.
 
 Enjoy!
+_____________________________________________
 
+ 1 rule broken + first offesnse mute for 2 hours or less
+ 1 rule broken + nth offence = mute for 2 days
+ 2 rule broken + 2nd offence = 3 days
+ 2 rule broken + 3rd offense = 4 day
