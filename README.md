@@ -23,7 +23,7 @@ _____________________________________________
 
 **2. Swearing.**
 
-Swearing is allowed. but please delete after the end user has read it, YELLING IS ALSO A OFFENSE THAT WILL GET 1 WARNING OR 2 MINS BAN
+Swearing is allowed.  YELLING IS ALSO A OFFENSE THAT WILL GET 1 WARNING OR 2 MINS BAN
 _____________________________________________
 
 **3.Listen to everyone.**
