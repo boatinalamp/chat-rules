@@ -1,4 +1,4 @@
-Written by Vee and Chewie
+Written by Vee and Chewie, Group I.P Redhan
 ---
 1. Keep the controversy from other chats out
 2. Respect peoples opinion
