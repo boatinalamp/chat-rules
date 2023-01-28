@@ -9,4 +9,4 @@ You may not agree but you can thrash them if it is factually wrong
 6. If a message is deleted, do not beg for them to resend it, only ask once and only once.
 7. No spam *whatsoever*
 8. Follow common sense
-9. :) keep using smiley face emoticons
+9. Keep using smiley face emoticons Pwease :)
