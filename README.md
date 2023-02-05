@@ -10,3 +10,4 @@ You may not agree but you can thrash them if it is factually wrong
 7. No spam *whatsoever*
 8. Follow common sense
 9. Keep using smiley face emoticons Pwease :)
+10. Follow basic ettiquette.
