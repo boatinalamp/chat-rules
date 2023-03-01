@@ -11,3 +11,5 @@ You may not agree but you can thrash them if it is factually wrong
 8. Follow common sense
 9. Keep using smiley face emoticons Pwease :)
 10. Follow basic ettiquette.
+11. PLEASE DONT TEXT PASSIVE AGGRESIVELY
+12. dont be cryptic.
